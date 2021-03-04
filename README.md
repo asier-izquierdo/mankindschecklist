@@ -1,1 +1,2 @@
 # mankindschecklist
+mankindschecklist.io
