@@ -6,4 +6,4 @@ This is where Mankind's Checklist is created, a universal, yet simple table that
 
 You can consider this a religion, a project, whatever you'd like. This idea surges aiming to give every individual on earth and beyond a reason to live and a key to contribute to society, and to give governments and excuse to eventually bind together, making it so Earth is a country by itself in which everybody with no exception has a dignified life.
 
-Once this project is completed, we will be 100% set as species.
+Once this project is completed, we will be 100% set as an species.
