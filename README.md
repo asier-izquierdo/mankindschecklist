@@ -1,1 +1,1 @@
-# mankindschecklist.github.io
+# mankindschecklist
