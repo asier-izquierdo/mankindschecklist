@@ -1,4 +1,4 @@
-
+#Mankind's Checklist
 
 We've been blindly evolving as a species, having an endless list of conflicts throughout our history, but what for? why would we fight ourselves? where do we want to get to by having more advanced technology?
 
