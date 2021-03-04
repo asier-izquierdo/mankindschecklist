@@ -1,5 +1,5 @@
 ---
-name: Change request
+name: Changes request
 about: Suggest an idea for this project
 title: ''
 labels: ''
